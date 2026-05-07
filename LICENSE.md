@@ -1,4 +1,4 @@
-
+3008 hidden Script offers the most advanced 3008 Script, with auto-upgrade and auto-farm. Perfect for dominating any match.
 
 
 
